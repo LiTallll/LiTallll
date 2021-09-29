@@ -10,4 +10,4 @@ Alistair, 21, INTP
 
 🔗 Discord : LiTall#9833
 
-🔗 Twitch : twitch.tv/litallll
+🔗 Twitch : https://www.twitch.tv/litallll

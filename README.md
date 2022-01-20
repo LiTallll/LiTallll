@@ -1,4 +1,4 @@
-Alistair, 21, INTP
+Alistair, 21, INTJ 1w9
 
 📚 Student in Computing
 

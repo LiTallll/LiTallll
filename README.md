@@ -2,7 +2,7 @@ Alistair, 21, INTJ 1w9
 
 📚 Student in Computing
 
-🎮 CSGO player, Looking For Team
+🎮 Apex / CSGO player, Looking For Team
 
 🎥 Streamer on all of my spare time
 
